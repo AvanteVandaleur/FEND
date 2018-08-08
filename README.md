@@ -1,5 +1,4 @@
-![image](https://lh3.googleusercontent.com/-_6BW-0Rp2vE/UVyjZ_mC01I/AAAAAAAAFhY/prtjEmR2sPs/w530-h374-n/GPlus_VonBraun.jpg)
--------------------------------
+
 
 
 
