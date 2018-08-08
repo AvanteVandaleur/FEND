@@ -1,4 +1,4 @@
-![image](https://qph.ec.quoracdn.net/main-qimg-31ef226e63fea57158862557f57affdb?convert_to_webp=true)
+![image](https://lh3.googleusercontent.com/-_6BW-0Rp2vE/UVyjZ_mC01I/AAAAAAAAFhY/prtjEmR2sPs/w530-h374-n/GPlus_VonBraun.jpg)
 -------------------------------
 
 
